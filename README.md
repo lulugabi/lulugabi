@@ -16,8 +16,8 @@ Meu nome é Luanne Gabrielle
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+luanne.bermirio@escola.pr.gov.br
 
-@luanne.bermirio
+@chw__lulu
 
 ![descrição do GIF](link GIF do Tenor)
