@@ -18,6 +18,6 @@ Meu nome é Luanne Gabrielle
 
 paludettomarcelo@gmail.com
 
-@marcelopaludetto
+@luanne.bermirio
 
 ![descrição do GIF](link GIF do Tenor)
